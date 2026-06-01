@@ -26,8 +26,3 @@ MI GRAN MANTRA:
 ⭐ *Gracias por visitar mi perfil.*
 
 
-
-
-Mark streak	
-TROPHY
--->

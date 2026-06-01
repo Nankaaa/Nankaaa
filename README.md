@@ -6,7 +6,7 @@ Sobre mi 😃
 
 📚 Quiero integrar la tecnología a mi profesión desarrollando soluciones centradas en las personas que promuevan bienestar, optimicen procesos organizacionales y mejoren la experiencia de usuarios y equipos.
 
-🎯 Mi propósito es conectar necesidades humanas con objetivos de negocio a través de tecnología, UX y comprensión del comportamiento humano.
+🎯 Mi propósito es conectar necesidades humanas con objetivos de negocio a través de tecnología, programación, diseño UX y comprensión del comportamiento humano.
 
 📖 Tecnologías que estoy aprendiendo:
 

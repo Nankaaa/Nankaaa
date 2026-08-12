@@ -1,6 +1,6 @@
 ## ¡Hola! Mi nombre es Nancy 👋
 
-🎓 Psicóloga de profesión, actualmente estudiante de Desarrollo Full Stack en Generation Chile y alumna de ADIPA Chile, cursando especialización en Reclutamiento y selección de personas ✨
+🎓 Psicóloga de profesión, certificada en Desarrollo Full Stack en Generation Chile y, actualmente cursando especialización en Reclutamiento y selección de personas ✨
 
 Sobre mi 😃
 
